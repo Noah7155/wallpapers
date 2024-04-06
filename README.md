@@ -1,3 +1,3 @@
-# I DO NOT OWN THESE IMAGES (Most of them, some are my own photography, ill never tell)
+# I do not own these images, I just like them (Most of them, some are my own photography)
 
-## I JUST LIKE THEM
+
